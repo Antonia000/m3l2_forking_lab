@@ -1,0 +1,3 @@
+Antonia
+Bucharest
+Frontend Developer Professional Certificate
